@@ -1,4 +1,4 @@
-# Pasta with brocoli, salmon, and cream cheese
+# Pasta with broccoli, salmon, and cream cheese
 
 ## Recipe
 
