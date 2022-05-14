@@ -1,4 +1,4 @@
-##About
+## About
 
 This is a compilation of recipes shared by participants on a discord server for autistic people.
 
